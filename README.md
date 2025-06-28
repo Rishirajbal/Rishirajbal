@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rishirajbal
-- 👀 I’m interested in AI/ML,Crypto,Quantum Computing,App dev
+- 👀 I’m interested in AI/ML,GenAI,Crypto,Quantum Computing,App dev
 - 🌱 I’m currently learning CSE B.tech 3rd year at KIIT,India
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me phone number-8920612514,rishirajbal003@gmail.com
