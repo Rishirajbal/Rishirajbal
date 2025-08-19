@@ -5,7 +5,7 @@
 -  How to reach me phone number-8920612514,rishirajbal003@gmail.com
 -  Pronouns: he/him
 -  RishiGPT
--  <img width="1000" height="1000" alt="RishiGPT" src="https://github.com/user-attachments/assets/bb876692-6ffe-4b15-b5a2-18aaf6982e86" />
+-  <img width="100" height="100" alt="RishiGPT" src="https://github.com/user-attachments/assets/bb876692-6ffe-4b15-b5a2-18aaf6982e86" />
 
 
 
