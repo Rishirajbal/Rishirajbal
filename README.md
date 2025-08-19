@@ -4,7 +4,7 @@
 -  I’m looking to collaborate on anything
 -  How to reach me phone number-8920612514,rishirajbal003@gmail.com
 -  Pronouns: he/him
--  RishiGPT
+-  RishiGPT QR
 -  <img width="100" height="100" alt="RishiGPT" src="https://github.com/user-attachments/assets/bb876692-6ffe-4b15-b5a2-18aaf6982e86" />
 
 
